@@ -1,4 +1,4 @@
-### Boas vindas ao meu perficl💙
+### Boas vindas ao meu perfil💙
 
 Meu nome é Jhenifer
 
